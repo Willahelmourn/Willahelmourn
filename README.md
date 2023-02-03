@@ -1,3 +1,3 @@
 WELLCOME😎
 
-<img src="https://thumbs.gfycat.com/FocusedPreciousAfricanelephant-max-1mb.gif" alt="DG3" width="114,5" height="173">
+<img src= "https://media.tenor.com/Xl814h7PMW4AAAAd/kirby.gif">
